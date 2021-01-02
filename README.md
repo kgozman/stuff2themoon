@@ -1,2 +1,2 @@
 # stuff2themoon
-What can you bring to th emo
+What can you bring to the moon?
